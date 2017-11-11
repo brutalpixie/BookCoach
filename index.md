@@ -2,7 +2,8 @@
 title: Home
 permalink: index.html
 ---
-#How can you write your own book?
+# How can you write your own book?
+
 If you have never written your own book, it's a difficult prospect. Going from idea to execution, let alone publication, seems like an insurmountable mountain range.
 ## Coaching helps. Here's why
 The right coach will help you:
@@ -14,9 +15,9 @@ The right coach will help you:
 * provide expert editorial feedback 
 * keep you on track and accountable.
 
-###What others have said:
+### What others have said:
 
-<blockquote>This is so valuable to my ability to progress this project. Can we extend for another six months? ~ Amanda, New York City
+<blockquote> This is so valuable to my ability to progress this project. Can we extend for another six months? ~ Amanda, New York City
 
 I wouldn't have thought to try that method [audio]! Great idea! ~ James, Perth</blockquote>
 
