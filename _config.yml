@@ -1,14 +1,13 @@
 # Setup
-title:        Project or Site name
-tagline:      A responsive theme for your project on GitHub Pages
+title:        How to write my own book
+tagline:      Coaching to become the writer you want to be
 baseurl:      ""
 paginate:     1
 
 # About/contact
 author:
-  name:       Author name
-  url:        http://yourhomepage.com 
-
+  name:       Leticia 
+  url:        http://biodagar.com
 # Gems
 gems:
   - jekyll-paginate
