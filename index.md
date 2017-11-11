@@ -4,7 +4,7 @@ permalink: index.html
 ---
 If you have never written your own book, it's a difficult prospect. 
 
-How do you go from idea to execution, let alone publication? From base camp the mountain range seems just brutal.
+How do you go from idea to execution, let alone publication? 
 
 ## Coaching helps. Here's why.
 The right coach will help you:
