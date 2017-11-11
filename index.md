@@ -1,3 +1,7 @@
+---
+title: Home
+permalink: index.html
+---
 #How can you write your own book?
 If you have never written your own book, it's a difficult prospect. Going from idea to execution, let alone publication, seems like an insurmountable mountain range.
 ## Coaching helps. Here's why
