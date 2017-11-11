@@ -34,10 +34,13 @@ But if you're not committed to the work, it won't work. Writing books is hard wo
 
 ### Whoa, man, I can't afford that!
 
-Lucky for you, there's another option. By joining a Group List, you'll pay $116 AUD per month and join a monthly group call with five others. If you have 4 keen friends, it's a great option.
+Lucky for you, there's another option. 
 
-PRO: It's cheaper
-CON: Waiting sucks, and you don't get personal attention to help you grow as an artist.
+By joining a Group List, you'll pay just $116 AUD per month. Once there is enough people on the list, you will join a monthly, 5-person call. If you have 4 keen friends, it's a great option.
+
+GOOD THINGS ABOUT THIS: It's cheaper
+
+BAD THINGS ABOUT THIS: Waiting sucks, and you don't get personal attention to help you grow as an artist.
 
 ### Who is my coach?
 
