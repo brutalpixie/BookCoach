@@ -40,6 +40,8 @@ Leticia has experience in publishing production both online and offline. Her com
 
 Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
 
+Her own books include Music Journalism 101, The Art of Postcard Writing, Brilliant Blawgs (coming 1 DEc 2017), and the almost-finished Business by the Moon. [She has an author page on Amazon, here](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9) and you can [read more about her here](http://biodagar.com). She is also [on Twitter](http://twitter.com/biodagar).
+
 ### What others have said:
 
 "This is so valuable to my ability to progress this project. Can we extend for another six months?" ~ Amanda, New York City
