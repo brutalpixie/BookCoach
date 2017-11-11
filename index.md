@@ -32,6 +32,13 @@ That's why we'll have 1 x 30-minute call to see if we're "right" for each other.
 
 But if you're not committed to the work, it won't work. Writing books is hard work, so know that ahead of time.
 
+### Whoa, man, I can't afford that!
+
+Lucky for you, there's another option. By joining a Group List, you'll pay $116 AUD per month and join a monthly group call with five others. If you have 4 keen friends, it's a great option.
+
+PRO: It's cheaper
+CON: Waiting sucks, and you don't get personal attention to help you grow as an artist.
+
 ### Who is my coach?
 
 Your coach is [Leticia Mooney](http://biodagar.com/about), who describes herself as a 'born writer'. She is a professional writer & editor by training; she has owned a publishing house, and produced books for herself and others.
