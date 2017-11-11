@@ -2,9 +2,8 @@
 title: Home
 permalink: index.html
 ---
-# How can you write your own book?
-
 If you have never written your own book, it's a difficult prospect. 
+
 How do you go from idea to execution, let alone publication? From base camp the mountain range seems just brutal.
 ## Coaching helps. Here's why
 The right coach will help you:
@@ -30,13 +29,18 @@ But if you're not committed to the work, it won't work. Writing books is hard wo
 
 ### Who is my coach?
 
-Your coach is [Leticia Mooney](http://biodagar.com/about), who describes herself as a 'born writer'. She is a professional writer & editor by training; she has owned a publishing house, and produced books for herself and others; she has experience in publishing production both online and offline. Leticia's company [Brutal Pixie](https://brutalpixie.com) now brings her production expertise to complex industries like law, engineering, finance and health. She is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
+Your coach is [Leticia Mooney](http://biodagar.com/about), who describes herself as a 'born writer'. She is a professional writer & editor by training; she has owned a publishing house, and produced books for herself and others.
+
+Leticia has experience in publishing production both online and offline. Her company [Brutal Pixie](https://brutalpixie.com) now brings production expertise to complex industries like law, to support continuous marketing efforts. 
+
+Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
 
 ### What others have said:
 
 <blockquote> This is so valuable to my ability to progress this project. Can we extend for another six months? ~ Amanda, New York City
 
-I wouldn't have thought to try that method [audio]! Great idea! ~ James, Perth</blockquote>
+<blockquote> I wouldn't have thought to try that method [audio]! Great idea! ~ James, Perth</blockquote>
 
 ## Email is free, you get an initial call at no cost. It's risk-free to get started.
- <a class="typeform-share button" href="https://brutalpixie.typeform.com/to/n55yGQ" data-mode="popup" style="display:inline-block;text-decoration:none;background-color:#dd2668;color:white;cursor:pointer;font-family:Helvetica,Arial,sans-serif;font-size:20px;line-height:50px;text-align:center;margin:0;height:50px;padding:0px 33px;border-radius:25px;max-width:100%;white-space:nowrap;overflow:hidden;text-overflow:ellipsis;font-weight:bold;-webkit-font-smoothing:antialiased;-moz-osx-font-smoothing:grayscale;" data-hide-headers=true data-hide-footer=true target="_blank">Join the Waiting List </a> <script> (function() { var qs,js,q,s,d=document, gi=d.getElementById, ce=d.createElement, gt=d.getElementsByTagName, id="typef_orm_share", b="https://embed.typeform.com/"; if(!gi.call(d,id)){ js=ce.call(d,"script"); js.id=id; js.src=b+"embed.js"; q=gt.call(d,"script")[0]; q.parentNode.insertBefore(js,q) } })() </script>
+
+<a class="typeform-share button" href="https://brutalpixie.typeform.com/to/n55yGQ" data-mode="popup" style="display:inline-block;text-decoration:none;background-color:#dd2668;color:white;cursor:pointer;font-family:Helvetica,Arial,sans-serif;font-size:20px;line-height:50px;text-align:center;margin:0;height:50px;padding:0px 33px;border-radius:25px;max-width:100%;white-space:nowrap;overflow:hidden;text-overflow:ellipsis;font-weight:bold;-webkit-font-smoothing:antialiased;-moz-osx-font-smoothing:grayscale;" data-hide-headers=true data-hide-footer=true target="_blank">Join the Waiting List </a> <script> (function() { var qs,js,q,s,d=document, gi=d.getElementById, ce=d.createElement, gt=d.getElementsByTagName, id="typef_orm_share", b="https://embed.typeform.com/"; if(!gi.call(d,id)){ js=ce.call(d,"script"); js.id=id; js.src=b+"embed.js"; q=gt.call(d,"script")[0]; q.parentNode.insertBefore(js,q) } })() </script>
