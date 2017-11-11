@@ -6,7 +6,7 @@ If you have never written your own book, it's a difficult prospect.
 
 How do you go from idea to execution, let alone publication? From base camp the mountain range seems just brutal.
 
-## Coaching helps. Here's why
+## Coaching helps. Here's why.
 The right coach will help you:
 
 * find the method that works for you
@@ -23,7 +23,7 @@ The right coach will help you:
 
 The most important thing about working with a coach is knowing that you can work together! 
 
-That's why we'll have one 30-minute call to see if we're "right" for each other. After this, if you decide that this could be the most awesome thing ever, here's what will happen:
+That's why we'll have 1 x 30-minute call to see if we're "right" for each other. After this, if you decide that this could be the most awesome thing ever, here's what will happen:
 
 * You commit to paying $580 AUD per month, for a minimum of 3 months
 * Together we set expectations for the relationship, on both sides. Great rules make things work!
@@ -40,7 +40,7 @@ Leticia has experience in publishing production both online and offline. Her com
 
 Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
 
-Her own books include Music Journalism 101, The Art of Postcard Writing, Brilliant Blawgs (coming 1 DEc 2017), and the almost-finished Business by the Moon. [She has an author page on Amazon, here](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9) and you can [read more about her here](http://biodagar.com). She is also [on Twitter](http://twitter.com/biodagar).
+Her own books include Music Journalism 101, The Art of Postcard Writing, Brilliant Blawgs (coming 1 Dec 2017), and the almost-finished Business by the Moon. [She has an author page on Amazon](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9) and you can [read more about her here](http://biodagar.com). She is also [on Twitter](http://twitter.com/biodagar).
 
 ### What others have said:
 
@@ -48,6 +48,6 @@ Her own books include Music Journalism 101, The Art of Postcard Writing, Brillia
 
 "I wouldn't have thought to try that method [audio]! Great idea!" ~ James, Perth</blockquote>
 
-## Email is free, you get an initial call at no cost. [It's risk-free!](https://brutalpixie.typeform.com/to/n55yGQ).
+## Email is free, you get an initial call at no cost. [Yep, risk-free!](https://brutalpixie.typeform.com/to/n55yGQ)
 
 Your dream is just an email away. [Send your message now.](https://brutalpixie.typeform.com/to/n55yGQ)
