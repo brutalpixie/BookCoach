@@ -54,10 +54,15 @@ Her own books include Music Journalism 101, The Art of Postcard Writing, Brillia
 
 ### What others have said:
 
-"This is so valuable to my ability to progress this project. Can we extend for another six months?" ~ Amanda, New York City
+"This is so valuable to my ability to progress this project. Can we extend for another six months?" 
+~ Amanda, New York City
 
-"I wouldn't have thought to try that method [audio]! Great idea!" ~ James, Perth</blockquote>
+"I wouldn't have thought to try that method [audio]! Great idea!" 
+~ James, Perth
 
 ## Email is free, you get an initial call at no cost. [Yep, risk-free!](https://brutalpixie.typeform.com/to/n55yGQ)
 
 Your dream is just an email away. [Send your message now.](https://brutalpixie.typeform.com/to/n55yGQ)
+
+
+
