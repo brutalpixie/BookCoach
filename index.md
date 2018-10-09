@@ -19,34 +19,41 @@ The right coach will help you:
 * lavish you with praise when it's due
 * be endlessly encouraging (when all your friends and family are scoffing at you).
 
-### How does it work?
+### Step 1: Get all the freebies!
 
-The most important thing about working with a coach is knowing that you can work together! 
+Snap up your FREE hour-long consultation. If you want another one four weeks later, it'll be a full coaching call, and you also get that for free.
 
-That's why you get a FREE consultation for up to an hour + your first coaching call also for free. 
+Decide afterwards if you want to continue.
 
-Then, if you decide that this could be the most awesome thing ever, here's what will happen:
+### Step 2: Feel the brilliance of creation, decide you want more of it
 
-* You commit to paying $490 (AUD) per month
-* Together we set expectations for the relationship, on both sides. Great rules make things work!
+If you do, you can choose **either alone or in a group**.
+
+Here's how it works. 
+
 * You get 1 x 60-minute call every month
+* You set your direction with support, prompting (or challenge) from your coach
 * You get support via WhatsApp, Signal or Telegram, for your own growth, to bounce ideas and get feedback between calls.
 
-But if you're not committed to the work, it won't work! Inspiration has to find you working. :)
+You start working. Remember, inspiration has to find you working. :)
 
-### Got a writers' group and want to do it together? Join a Group List!
+#### Pricing: Individual vs Groups
+$490*/month for individuals
+$490*/month for groups of 5.
 
-When you have a full group, you'll pay just $116 AUD per month. Once there is enough people on the list, you will join a monthly, 5-person call. If you have 4 keen friends - or 4 other writers you meet with - it's a great option.
+So if you have 4 friends who also want to write, you pay $116* per month each. 
 
-If you don't have a writers' group, you can [put your name on the list](https://brutalpixie.typeform.com/to/n55yGQ). As soon as we have our next 5 on the list, we'll launch the next group.
+And if you don't have any friends (because, let's face it, you're a writer and spend most of your time alone), [put your name on the list](https://brutalpixie.typeform.com/to/n55yGQ). As soon as we have our next 5 on the list, we'll launch the next group.
+
+* All prices are in Australian dollars, and include GST.
 
 ### Who is my coach?
 
-Your coach is [Leticia Mooney](http://biodagar.com/about), who describes herself as a 'born writer'. She is a professional writer & editor by training; she has owned a publishing house, and produced books for herself and others.
+Your coach is [Leticia Mooney](http://biodagar.com/about), has mentored dozens of writers. She is a professional writer & editor by training; she has owned a publishing house, and produced books for herself and others.
 
 Leticia has experience in publishing production both online and offline. Her company [Brutal Pixie](https://brutalpixie.com) now brings production expertise to complex industries like law, to support continuous marketing efforts. 
 
-Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
+Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of other writers: In business, in non-fiction, in fiction.
 
 Her own books include [Music Journalism 101](https://www.amazon.com/Music-Journalism-101-definitive-established/dp/0992283701), [The Art of Postcard Writing](https://www.amazon.com/Art-Postcard-Writing-Better-Travel/dp/0646903616), [Brilliant Blawgs](http://brutalpixie.com/brilliant-blawgs-playbook-creating-maintaining-strategic-blogs-clients-prospects-love). In October 2018 she finished her first screenplay, and is working on two more books [She has an author page on Amazon](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9), and an open writing journal at [Patreon](http://patreon.com/biodagar).
 
