@@ -23,24 +23,22 @@ The right coach will help you:
 
 The most important thing about working with a coach is knowing that you can work together! 
 
-That's why we'll have 1 x 30-minute call to see if we're "right" for each other. After this, if you decide that this could be the most awesome thing ever, here's what will happen:
+That's why you get a FREE consultation for up to an hour + your first coaching call also for free. 
 
-* You commit to paying $580 AUD per month, for a minimum of 3 months
+Then, if you decide that this could be the most awesome thing ever, here's what will happen:
+
+* You commit to paying $490 (AUD) per month
 * Together we set expectations for the relationship, on both sides. Great rules make things work!
 * You get 1 x 60-minute call every month
-* You get support via WhatsApp, to bounce ideas and get feedback between calls.
+* You get support via WhatsApp, Signal or Telegram, for your own growth, to bounce ideas and get feedback between calls.
 
-But if you're not committed to the work, it won't work. Writing books is hard work, so know that ahead of time.
+But if you're not committed to the work, it won't work! Inspiration has to find you working. :)
 
-### Whoa, man, I can't afford that!
+### Got a writers' group and want to do it together? Join a Group List!
 
-Lucky for you, there's another option. 
+When you have a full group, you'll pay just $116 AUD per month. Once there is enough people on the list, you will join a monthly, 5-person call. If you have 4 keen friends - or 4 other writers you meet with - it's a great option.
 
-By joining a Group List, you'll pay just $116 AUD per month. Once there is enough people on the list, you will join a monthly, 5-person call. If you have 4 keen friends, it's a great option.
-
-GOOD THINGS ABOUT THIS: It's cheaper
-
-BAD THINGS ABOUT THIS: Waiting sucks, and you don't get personal attention to help you grow as an artist.
+If you don't have a writers' group, you can [put your name on the list](https://brutalpixie.typeform.com/to/n55yGQ). As soon as we have our next 5 on the list, we'll launch the next group.
 
 ### Who is my coach?
 
@@ -50,19 +48,19 @@ Leticia has experience in publishing production both online and offline. Her com
 
 Your coach is a highly experienced coach and mentor, and has spent much of her life working to improve the style and talent of writers.
 
-Her own books include Music Journalism 101, The Art of Postcard Writing, Brilliant Blawgs (coming 1 Dec 2017), and the almost-finished Business by the Moon. [She has an author page on Amazon](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9) and you can [read more about her here](http://biodagar.com). She is also [on Twitter](http://twitter.com/biodagar).
+Her own books include [Music Journalism 101](https://www.amazon.com/Music-Journalism-101-definitive-established/dp/0992283701), [The Art of Postcard Writing](https://www.amazon.com/Art-Postcard-Writing-Better-Travel/dp/0646903616), [Brilliant Blawgs](http://brutalpixie.com/brilliant-blawgs-playbook-creating-maintaining-strategic-blogs-clients-prospects-love). In October 2018 she finished her first screenplay, and is working on two more books [She has an author page on Amazon](https://www.amazon.com/Leticia-Supple/e/B071GTJNC9), and an open writing journal at [Patreon](http://patreon.com/biodagar).
 
 ### What others have said:
 
-"This is so valuable to my ability to progress this project. Can we extend for another six months?" 
-~ Amanda, New York City
+"This is so valuable for my ability to progress. Can we extend for another six months?" 
+~ Amanda, New York City (USA)
 
 "I wouldn't have thought to try that method [audio]! Great idea!" 
-~ James, Perth
+~ James, Perth (Australia)
 
-## Email is free, you get an initial call at no cost. [Yep, risk-free!](https://brutalpixie.typeform.com/to/n55yGQ)
+## Test the waters today, with a FREE consultation. [Learn more here](https://calendly.com/brutalpixie/client-call)
 
-Your dream is just an email away. [Send your message now.](https://brutalpixie.typeform.com/to/n55yGQ)
+Got questions? [Send your message now.](https://brutalpixie.typeform.com/to/n55yGQ)
 
 
 
